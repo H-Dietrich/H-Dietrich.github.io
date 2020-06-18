@@ -14,3 +14,5 @@ Lucy sagte:
 > Eine Gedenktafel?
 > Na, die Zeitkollision scheint ja nicht alles geändert zu haben.
 > Es ist immer noch eine Männerwelt.
+
+<img src="https://m.media-amazon.com/images/S/aplus-media/vc/92aa372c-dd58-4666-8eba-86c901494320.JPG"/>
