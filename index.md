@@ -9,3 +9,8 @@ In ihr schlummert jedoch eine rebellische und abenteuerlustige Seele.
 * erfinderisch
 * mechanisch begabt
 * sucht das Abenteuer
+
+Lucy sagte:
+> Eine Gedenktafel?
+> Na, die Zeitkollision scheint ja nicht alles geändert zu haben.
+> Es ist immer noch eine Männerwelt.
